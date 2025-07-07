@@ -21,4 +21,4 @@
 关键词“日本AV免费”、“无码高清视频”、“日本AV在线观看”等自然分布于标题、描述和正文，配合详细分类标签，提升搜索引擎对网站内容的抓取和排名效果。我们坚持内容原创和高频更新，确保网站活跃度和权威性。
 
 无论你是AV爱好者，还是初次接触日本AV资源，这里都是你的首选。立即收藏本站，体验最全最优质的日本AV免费视频资源，享受免费在线观看的乐趣！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnn2611dtn2611/19000 ）</span>
